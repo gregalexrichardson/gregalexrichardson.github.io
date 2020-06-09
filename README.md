@@ -1,1 +1,0 @@
-# gregalexrichardson.github.io
